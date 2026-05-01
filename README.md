@@ -7,7 +7,6 @@
                                                                 
                                 interests: rain world, madoka, magical girls, dod.
 
-                                                    sys
                                                                 
                                                     🦴 
                                                                
