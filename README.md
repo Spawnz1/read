@@ -2,7 +2,7 @@
                                                              
                                                                14 yrs old
                                                                 
-                                                               interests:
+                                              interests: rain world, madoka, magical girls, dod.
                                                                 
                                                                  System
                                                                
