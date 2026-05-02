@@ -12,7 +12,7 @@
                                                                 
                                                     🦴 
                                                                
-                                                 Always int  
+                                        Always int i love making friends 
 
                                                    
 <img width="1000" height="70" alt="image" src="https://github.com/user-attachments/assets/338e2004-1cc7-471b-8428-da486796ea40" />
