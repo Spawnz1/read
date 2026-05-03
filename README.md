@@ -8,8 +8,6 @@
                                 interests: rain world, madoka, magical girls, dod.
 
                                              discord is Kyoyay.z
-
-                                                  system
                                                                 
                                                     🦴 
                                                                
